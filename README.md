@@ -1,3 +1,4 @@
+<img src= "https://d.zaix.ru/SrNJ.jpg" />
 🟢 / 💬 – I'm not busy at all and I'm looking for chat! but u better whisper to me cuz i can be off tab.
 
 🌙 – AFK cuz I'm doing something else besides playing pony town. w2i
