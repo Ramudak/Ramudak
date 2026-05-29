@@ -1,4 +1,5 @@
 <img src= "https://d.zaix.ru/SrNJ.jpg" />
+
 💬 - w2i and c+h ! IM BOOORED AND I REALLY WANNA TALK TO SOMEONE !! 
 
 🟢 – w2i and c+h ! not busy, feel free to interact 
